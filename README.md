@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Pam-Medeiros 😁
+## Bem-vindo(a) ao perfil de Pam-Medeiros 👩🏻‍💻
 
  <div>
    <a href="https://github.com/Pam-Medeiros">
